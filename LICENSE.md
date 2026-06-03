@@ -1,4 +1,4 @@
-# 
+# Atualizado dydx trading bot modelos para Mac OS | Top dydx trading bot modelos para PC Windows. Com agregação multi-DEX e conectividade Web3 — otimizado para máximo desempenho em cada plataforma.
 
 
 
